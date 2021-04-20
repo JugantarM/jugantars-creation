@@ -2,7 +2,7 @@
 
 Hello Guys this is my new website.
 
-visit my website from here : https://jugantarm.github.io/jugantars-creations/
+visit my website from here : https://jugantarm.github.io/jugantars-creation/
 
 ◆ FOR MORE UPDATES ◆
 
